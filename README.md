@@ -1,1 +1,1 @@
-# white-terrier
+# white-terrier it's a dog
